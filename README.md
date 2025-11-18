@@ -28,3 +28,6 @@ Saya sedang berfokus pada bidang editing <br>Saya ingin berkolaborasi pada proye
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
+Saya sedang berfokus pada bidang editing 
+Saya ingin berkolaborasi pada proyek pembuatan karya konten yang baik dan kreatif
+Saat ini saya sedang belajar editing dengan aplikasi capcut
